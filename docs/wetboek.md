@@ -1,7 +1,7 @@
 # Wetboek BigPoint 
 
 ## Algemene Bepalingen
-
+Joeeeeee
 ### A1 - Reikwijdte
 
 1. Het Wetboek BigPoint is leidend voor alle beschreven gevallen, waarbij als aanvulling het Nederlands Recht van toepassing is. 
